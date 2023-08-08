@@ -9,7 +9,6 @@
 
 ##  Contact Me:
 
-- **Discord:** insket#6505
 - **QQ:** 2694183181
 - **WeChat:** inskett
 - **E-mail:** insket@163.com
